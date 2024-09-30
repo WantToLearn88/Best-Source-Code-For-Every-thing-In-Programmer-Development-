@@ -3,7 +3,7 @@
 
 ### https://github.com/PacktPublishing
 
-
+## websites. For all android resources..have 😊 with coding
 
 https://technotalkative.com/android/
 
